@@ -10,6 +10,8 @@ Features:
 - The ability to select the networks where the wallet will be searched
 - Windows And Macos Computers
 
+https://github.com/DarkOfLord1/Walletminer-Walletbruteforce-Wallethunter-Seedbruteforce-Btc-brute-force-/assets/153342408/562a3a2b-a1d1-4ff7-8c2c-33f8e6592e01
+
 Dm to buy 
 
 https://t.me/wallethunter1
